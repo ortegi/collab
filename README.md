@@ -1,5 +1,6 @@
 # NOCHE OCHENTERA
 
-my Name is ortegi and i am married to albert. He is the most beautiful boy in the world 🚀 and i love his a lot
+my Name is alberto and i am married to ortegi. she is the most beautiful girl in the world 🚀
 
-Hellouuuuuu spain! 🚀
+Hellouuuuuu, agur!
+
